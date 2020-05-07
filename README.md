@@ -7,8 +7,7 @@
 我的GitHub项目地址为：https://github.com/Huaxingweichen/HIT-OS-REPORT
 如果加载速度慢或者图片加载不出来请科学上网哦～
 如有疑问请联系我：
-手机:17863115665
-qq:812116298
+
 辛苦老师！
 ---
 >黄灏
